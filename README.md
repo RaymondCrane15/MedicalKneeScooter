@@ -1,0 +1,2 @@
+# MedicalKneeScooter
+Most medical supply stores offer rental options. If your injury is temporary, renting is a great alternative. Crutches, scooters, walkers, and wheelchairs are just the ticket to your way to recovery. Medical supply stores also sale used medical equipment. It may be just as cost effective to purchase a used power wheelchair as it is to rent one. Weigh your options and consider your health care needs down the road when purchasing medical equipment from a supply store. Click Here: http://www.medicalkneescooter.com/
